@@ -7,7 +7,9 @@ Elevate your wardrobe with the best Dandy hoodies, featuring premium fabrics, bo
 
 <li>Official Website
 <br>https://dandyworldwidehoodie.com/
-<ul></ul>Style Guides & Trend Resources
+
+  # Style Guides & Trend Resources
 Medium Article:
-https://medium.com/@darkluxuryc/dandy-worldwide-hoodie-redefining-modern-streetwear-162a2bdffc21
+
+  https://medium.com/@darkluxuryc/dandy-worldwide-hoodie-redefining-modern-streetwear-162a2bdffc21
 
