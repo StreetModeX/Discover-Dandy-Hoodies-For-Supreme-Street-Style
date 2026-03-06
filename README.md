@@ -12,4 +12,8 @@ Elevate your wardrobe with the best Dandy hoodies, featuring premium fabrics, bo
 Medium Article:
 
   https://medium.com/@darkluxuryc/dandy-worldwide-hoodie-redefining-modern-streetwear-162a2bdffc21
+ 
+ Pinterest Inspiration:
+ 
+ https://www.pinterest.com/pin/1142366261752452360/
 
