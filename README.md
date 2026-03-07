@@ -21,3 +21,7 @@ Site google Repository:
 
  https://sites.google.com/view/luxestreethub/
 
+Notion: 
+ 
+ https://www.notion.so/Dandy-Worldwide-Your-Streetwear-Style-Center-31c408aaa61780ec9246d74483c95b03?source=copy_link
+
