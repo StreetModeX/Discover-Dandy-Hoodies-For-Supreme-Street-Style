@@ -36,3 +36,7 @@ https://www.pearltrees.com/dandyworldwide/item784646257
 carrd.co:
 
 https://urbanflexfit.carrd.co/
+
+Wordpress Article:
+
+https://chromehearts45.wordpress.com/2026/03/12/why-dandy-worldwide-hoodies-are-a-must-have-in-modern-streetwear/
