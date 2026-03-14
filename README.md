@@ -10,33 +10,29 @@ Elevate your wardrobe with the best Dandy hoodies, featuring premium fabrics, bo
 
   # Style Guides & Trend Resources
 Medium Article:
-
-  https://medium.com/@darkluxuryc/dandy-worldwide-hoodie-redefining-modern-streetwear-162a2bdffc21
+<br>https://medium.com/@darkluxuryc/dandy-worldwide-hoodie-redefining-modern-streetwear-162a2bdffc21
  
  Pinterest Inspiration:
- 
- https://www.pinterest.com/pin/1142366261752452360/
+ <br>https://www.pinterest.com/pin/1142366261752452360/
 
 Site google Repository:
-
- https://sites.google.com/view/luxestreethub/
+<br>https://sites.google.com/view/luxestreethub/
 
 Notion: 
- 
- https://www.notion.so/Dandy-Worldwide-Your-Streetwear-Style-Center-31c408aaa61780ec9246d74483c95b03?source=copy_link
+ <br>https://www.notion.so/Dandy-Worldwide-Your-Streetwear-Style-Center-31c408aaa61780ec9246d74483c95b03?source=copy_link
 
 Issue:
-
-https://issuu.com/dandyworldwid
+<br>https://issuu.com/dandyworldwid
 
 pearltrees:
-
-https://www.pearltrees.com/dandyworldwide/item784646257
+<br>https://www.pearltrees.com/dandyworldwide/item784646257
 
 carrd.co:
-
-https://urbanflexfit.carrd.co/
+<br>https://urbanflexfit.carrd.co/
 
 Wordpress Article:
+<br>https://chromehearts45.wordpress.com/2026/03/12/why-dandy-worldwide-hoodies-are-a-must-have-in-modern-streetwear/
 
-https://chromehearts45.wordpress.com/2026/03/12/why-dandy-worldwide-hoodies-are-a-must-have-in-modern-streetwear/
+Tumblr:
+<br>https://www.tumblr.com/fashionflex
+
